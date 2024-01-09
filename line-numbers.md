@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is awesome.
 #### 10
-#### 11 Lian Jairo Kostela 
+#### 11 Kostela, Jairo, Lian 
 #### 12
 #### 13
 #### 14
